@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... learning 
 - 🌱 I’m currently learning ...whatevwrifuckingcan
 - 💞️ I’m looking to collaborate on ...anything 
-- 📫 How to reach me ...momentomoristoicpath@gmail.com
+- 📫seancoshea@yahoo.com
 
 <!---
 Seancoshea/Seancoshea is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
